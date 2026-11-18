@@ -12,4 +12,4 @@
 5. boops okay, sitting with me/cuddling okay, ask b4 friending, often zoning out/offtab/afk.
 
 
->                                                  💊
+>                                               🎭
