@@ -10,7 +10,6 @@
 3. 18+, dni if under 15.
 4. other Tim W. singlets, systems, fictives… dni.
 5. boops okay, sitting with me/cuddling okay, ask b4 friending, often zoning out/offtab/afk.
-6. txt
 
 
 >                                               🎭
